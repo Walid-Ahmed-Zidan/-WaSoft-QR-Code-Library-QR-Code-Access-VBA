@@ -22,7 +22,7 @@
 📺 فيديو الشرح على YouTube: [https://youtu.be/38F8_9sVMrU]
 👨‍💻 المطور: Walid Ahmed
 •	YouTube: [https://www.youtube.com/@WalidAhmed057]
-•	Facebook Page: [https://www.facebook.com/?ref=homescreenpwa]
+•	Facebook Page: [https://www.facebook.com/WalidAhmed057]
 •	Facebook : [https://www.facebook.com/profile.php?id=100013913057940]
 •	LinkedIn: [https://www.linkedin.com/in/walid-ahmed-zidan-2a6280168/]
 •	GitHub: [https://github.com/Walid-Ahmed-Zidan]
