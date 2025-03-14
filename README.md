@@ -1,0 +1,1 @@
+# -WaSoft-QR-Code-Library-QR-Code-Access-VBA
